@@ -2,7 +2,7 @@
 
 Good Morning!  My name is Laura Ramirez, I am from Peru and I came to Belgium some years ago, now I am living in Beveren.  I studied Science of Communication and International Trade,  I was always interested in Computer Science but I thougth it was so heavy to get on it, now I am trying to learn as much as possible with HackyourFuture Belgium and from my classmates and I feel happy to be here.
 
-#### This nice Pikechu is my gift for you 
+#### This nice Pikachu is my gift for you 
 :smiling_face_with_three_hearts:
 (https://www.bangkokpost.com/life/arts-and-entertainment/1764659/the-continuing-adventures-of-doraemon)
 
